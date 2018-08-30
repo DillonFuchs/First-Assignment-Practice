@@ -1,1 +1,1 @@
-# First-Assignment-Practice
+# FirstAssignmentPractice.github.io
